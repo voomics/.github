@@ -1,1 +1,1 @@
-## Voomics: Bharat ki Comics
+## Voomics: Video and Comics
